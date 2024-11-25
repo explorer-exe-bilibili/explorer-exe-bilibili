@@ -2,7 +2,7 @@
 - 👀 I’m interested in playing Minecraft and c++
 - 💞️ I’m looking to collaborate on making random name program
 - 📫 How to reach me j13879066396@163.com or QQ:2279447116
-- 😄 Pronouns: (mad?),a little fool(?)
+- 😄 Pronouns: haha
 - ⚡ Fun fact: 
 
 <!---
